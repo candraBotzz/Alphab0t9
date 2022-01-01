@@ -18,10 +18,10 @@ return `PAYMENT BY ZEEONE OFC
 		• ZE**** **C
 
 *さ PULSA*
-1. SMARTFREN
-	ㅁ 0887 4350 47326
+1. AXIS
+	ㅁ 0838 3081 5715
 2. TELKOMSEL
-	ㅁ 0821 9311 5723
+	ㅁ 0821 2424 5042
 	
 Sebelum melakukan pembayaran ada baiknya anda menghubungi owner terlebih dahulu!
 `
